@@ -49,3 +49,4 @@ Ahmed Mansour
 Data Analyst
 
 LinkedIn: [My LinkedIn Profile](https://www.linkedin.com/in/ahmed-mansour-955aa0197/)
+[Portfolio](https://ahmedmansourdataanalyst.my.canva.site/ahmed-mansour)
